@@ -1,7 +1,7 @@
 # 👩‍💼 Hend Diab | Accountant & Data Analyst
 
 ### 📍 Based in Beheira, Egypt  
-Third-year Business student at Alexandria University, passionate about blending *accounting* and *data analytics* to drive smart decisions and insights.1
+graduated Business student at Alexandria University, passionate about blending *accounting* and *data analytics* to drive smart decisions and insights.1
 
 ---
 
